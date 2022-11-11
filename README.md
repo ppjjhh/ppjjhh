@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ppjjhh
 - 👀 I’m interested in money
-- 🌱 I’m currently learning how to find a job
-- 💞️ I’m looking to collaborate on earn money
+- 🌱 I’m currently learning how to be a good person
+- 💞️ I’m looking to collaborate on earning money
 - 📫 How to reach me ppjjhh@foxmail.com
 
 <!---
